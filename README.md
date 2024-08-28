@@ -6,5 +6,6 @@ ESTOU NO GITHUB PRINCIPALMENTE PARA AS SEGUINTES AÇÕES:
 - PROGAMAR SCRATCH E JAVASCRIPT💻;
 - MEU DESENVOLVIMENTO PESSOAL EM PROGAMAÇÃO 📈;
 - 17 991213482;
-- PARA ENTRAR EM CONTATO COMIGO, ACESSE:
-  @33KWINKS 📷
+- PARA ENTRAR EM CONTATO COMIGO, ACESSE @33KWINKS
+
+![](https://www.google.com/imgres?q=flash%20gif%20free&imgurl=https%3A%2F%2Fwww.icegif.com%2Fwp-content%2Fuploads%2F2022%2F09%2Ficegif-1486.gif&imgrefurl=https%3A%2F%2Fwww.icegif.com%2Fthe-flash-9%2F&docid=xT77-PXAlyVdIM&tbnid=GeeWvejQftUYXM&vet=12ahUKEwigxeH8o5iIAxVHrZUCHb5JI1IQM3oECGUQAA..i&w=460&h=252&hcb=2&ved=2ahUKEwigxeH8o5iIAxVHrZUCHb5JI1IQM3oECGUQAA)
